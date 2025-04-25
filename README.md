@@ -1,1 +1,1 @@
-I am fascinated by how we make rocks think, especially when it needs to happen fast 🚀
+I am fascinated by how we make rocks think, especially how we make them think fast :]
