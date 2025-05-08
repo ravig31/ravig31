@@ -1,2 +1,2 @@
 
-Senior LLM Communicator and Silicon Persuader. Part-time ticket author.
+Proffesional LLM Whisperer and Silicon Persuader. Part-time ticket author.
