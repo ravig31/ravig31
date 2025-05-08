@@ -1,6 +1,2 @@
 
-Professional silicon persuader. Professional Arch User. Professional Ticket Writer.
-
-Why is my CPU having performance anxiety?
-
-
+Senior LLM Communicator and Silicon Persuader. Part-time ticket author.
