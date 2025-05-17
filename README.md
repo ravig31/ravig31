@@ -1,2 +1,2 @@
 
-Proffesional LLM Whisperer and Silicon Persuader. Part-time ticket author.
+Proffesional LLM Whisperer, Silicon Persuader and under-the-hood explorer.
