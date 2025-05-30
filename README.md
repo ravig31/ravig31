@@ -1,2 +1,2 @@
 
-Proffesional LLM Whisperer, Silicon Persuader and under-the-hood explorer.
+Ever be wondering how we make rock thinks?
