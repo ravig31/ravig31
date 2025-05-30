@@ -1,2 +1,2 @@
 
-Ever be wondering how we make rock thinks?
+Ever be wondering how we make rock think?
